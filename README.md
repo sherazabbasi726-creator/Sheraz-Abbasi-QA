@@ -1,1 +1,0 @@
-# Sheraz-Abbasi-QA
